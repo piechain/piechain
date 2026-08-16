@@ -20,7 +20,7 @@ Read DNI before
 </table>
 </p>
   <p  align="center">
- <img  width="700px" src="https://file.garden/aG4uPTNO_Dlar84S/skibidi.gif" />
+ <img  width="550px" src="https://file.garden/aG4uPTNO_Dlar84S/skibidi.gif" />
 
 
 
