@@ -16,7 +16,7 @@ Read DNI before
  <br>
   <br>
    <br>
- <a href="https://txto.eu.org/cej"> info</a> and <a href="https://hash8f2240.atabook.org"> 新book</a> 
+ <a href="https://txto.eu.org/yuder"> info</a> and <a href="https://hash8f2240.atabook.org"> 新book</a> 
     </td>
   </tr>
 </table>
