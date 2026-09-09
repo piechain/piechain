@@ -21,5 +21,5 @@
   </tr>
 </table>
 <p  align="center">
-<sub> Honoroble mentions to my friends <a href="https://github.com/Red-And-Dying-Evening">Sumi</a>, <a href="https://github.com/Nervous-Young-Inhumans">Fushi</a>, <a href="https://github.com/smokebomb">Oresha</a>, <a href="https://github.com/navistel">Navi</a>, <br>
+<sub> Honoroble mentions to my friends <a href="https://github.com/Red-And-Dying-Evening">Sumi</a>, <a href="https://github.com/Nervous-Young-Inhumans">Fushi</a>, <a href="https://github.com/smokebomb">Oresha</a>, <a href="https://github.com/navistel">Navi</a>, <a href="https://github.com/R3DC4RNATI0N">Rouve</a><br>
 and others who　i　sit with! 　(//>_<) 　　　Luv u friends 
