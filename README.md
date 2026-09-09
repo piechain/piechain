@@ -1,33 +1,21 @@
 <p  align="center">
-<img width="550px" src="https://64.media.tumblr.com/53001f3108124c75e4602e3b781bf6f2/796246153cbc0528-b6/s1280x1920/d1e8c4e382840c965b93b5c2ae244adaa24c6f2b.pnj" /> </p>
+  <sup><sub> credit is <a href="https://x.com/NNYEOM_2tat/status/1961717998215118930">@NNYEOM_2tat</a></sup></sub> <br>
+<img src="https://file.garden/aG4uPTNO_Dlar84S/cejnnyeom.gif" width="396"> </p>
 <table align="center">
   <tr>
-    <td rowspan="2" align="center">
-      <img src="https://file.garden/aG4uPTNO_Dlar84S/minipie.gif" width="120">
+    <td style="vertical-align: top;">
+      <img width="64" height="150" src="https://file.garden/aG4uPTNO_Dlar84S/suzui" >
     </td>
-    <td>
-DUMB or ${\textsf{\color{#6a5456} Jay}}$‎ ‎ 
-<br>
-ㅤ‎ㅤ ‎ ‎Adult ${\textsf{\color{#c9c7bd} 18}}$
-     <br>
-Read DNI before
-<br>
- ‎  ‎ ‎  ‎   ‎ interacting
- <br>
-  <br>
-   <br>
- <a href="https://txto.eu.org/yuder"> info</a> and <a href="https://hash8f2240.atabook.org"> 新book</a> 
+    <td style="vertical-align: top;">
+        𝔇umb　or　　<a href="https://pronouns.cc/@CEJ240">anyth else</a> 　^_^ <br>
+        ‎ ‎ ‎── ⟢ ・⸝⸝　　 18　 　 $${\color{#7a7984}Adult}$$ <br>
+        ⠀⠀ <br>
+        Check my　txto.eu　for　 $${\color{#dbd1b3}info !}$$ <br>
+        　 　 <a href="https://txto.eu.org/yuder">txto.eu</a> 　　⠀<a href="https://hash8f2240.atabook.org">ata.org</a>
+      </div>
+    </td>
+    <td style="vertical-align: top;">
+      <img width="22" height="150" src="https://file.garden/aG4uPTNO_Dlar84S/switch-left.gif" >
     </td>
   </tr>
 </table>
-</p>
-  <p  align="center">
- <img  width="550px" src="https://file.garden/aG4uPTNO_Dlar84S/skibidi.gif" />
-
-
-
-
-
-
-  </td>
- </p>
