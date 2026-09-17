@@ -12,7 +12,7 @@
         ⠀⠀ <br>
         Can txto stop deleting my pages. <br>
         No dni unless 16- <br>
-        　 　   　 　 　　⠀<a href="https://hash8f2240.atabook.org">ata.org</a> <br>
+        　 　 <a href="https://listography.com/geek">listo</a>　 　　⠀<a href="https://hash8f2240.atabook.org">ata.org</a> <br>
       　　　　　　<sub>(≖⩊≖)</sub>
       </div>
     </td>
